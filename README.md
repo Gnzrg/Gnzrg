@@ -1,4 +1,4 @@
-### Hi there 👋, Ariunaa Amarsanaa
+### Hi there 👋, Bat-Erdene Ganzorig
 ![](https://res.cloudinary.com/dno2srn4n/image/upload/v1685045162/Ariuhaaa_cfhsqy.png)
 
 
